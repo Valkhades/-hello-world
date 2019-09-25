@@ -10,4 +10,4 @@ Maybe some day i will also have time to my other hobby right?
 Cant let all my minis getting dust forever.
 
 
-Testing change now.
+Making some small changes now!
